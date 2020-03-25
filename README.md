@@ -1,5 +1,6 @@
 # portfolio
 
-    
 This is my portfolio.  
-Œ»Ýì¬’†‚Ì‚½‚ß‰˜‚©‚Á‚½‚ç‹–‚µ‚Ä‚Ë
+Watch from here!  
+-> https://konchannel.github.io/portfolio/  
+Thank you for watching :)
